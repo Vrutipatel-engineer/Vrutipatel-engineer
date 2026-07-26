@@ -30,7 +30,7 @@ I am a Final Year Computer Engineering student passionate about designing intuit
 
 ## 📫 Connect With Me
 
-- LinkedIn: *(Add your LinkedIn profile here)*
+- LinkedIn: www.linkedin.com/in/Vruti--Patel
 
 ---
 ⭐ Thanks for visiting my profile!
